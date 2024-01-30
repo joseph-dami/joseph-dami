@@ -24,7 +24,6 @@
 ## Connect with Me
 
 - [LinkedIn](https://www.linkedin.com/in/joseph-adegboyega-77b97623a/)
-- [GitHub](github.com/joseph-dami)
 - [Email](mailto:joseph.adegboyega@kibo.school)
 - Phone: +234 912 6588540
 
