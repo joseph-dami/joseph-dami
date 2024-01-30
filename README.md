@@ -23,7 +23,7 @@
 
 ## Connect with Me
 
-- [LinkedIn](https://www.linkedin.com/in/joseph-adegboyega-dami)
+- [LinkedIn](https://www.linkedin.com/in/josephadegboyega)
 - [Email](mailto:joseph.adegboyega@kibo.school)
 - Phone: +234 912 6588540
 
